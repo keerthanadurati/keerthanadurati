@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning devOps
 - 💞️ I’m looking to collaborate on himaja
 - 📫 How to reach me 
-- 😄 Pronouns: jki
+- 😄 Pronouns: keerthi
 - ⚡ Fun fact: ...
 
 <!---
