@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @keerthanadurati
 - 👀 I’m interested in dancing
 - 🌱 I’m currently learning devOps
-- 💞️ I’m looking to collaborate on himaja
+- 💞️ I’m looking to collaborate with himaja
 - 📫 How to reach me 
 - 😄 Pronouns: keerthi
 - ⚡ Fun fact: ...
